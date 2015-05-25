@@ -30,6 +30,6 @@ Some of the parts are listed below:
 <br><a href="http://www.homedepot.com/p/Unbranded-3-4-in-x-2-ft-x-4-ft-Medium-Density-Fiberboard-1508112/202089064">MDF Panels (desk sides and top)</a>
 <br><a href="http://www.homedepot.com/p/Project-Panels-1-8-in-x-2-ft-x-4-ft-Hardboard-Tempered-7005015/202088786">Masonite Panels (control panels)</a>
 <br><a href="http://www.homedepot.com/p/Everbilt-1-1-2-in-x-48-in-Bright-Nickel-Continuous-Hinge-15372/202034038">Piano Hinge</a>
-<br><a href="http://www.casa.com/p/wallpops-world-dry-erase-maps-wall-applique-multicolor-437544">World Map</a>
+<br><a href="http://www.amazon.com/Brewster-WPE99074-Stick-Dry-Erase-Marker/dp/B00408AAB2">World Map</a>
 
 Have fun building your own adventure!
